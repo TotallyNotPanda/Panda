@@ -1,2 +1,2 @@
 # Panda
-ICBD student of CYCU
+Im ICBD student of CYCU, a newbie here :D
